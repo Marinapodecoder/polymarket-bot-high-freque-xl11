@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with premium Polymarket Addon | liquidity-provision + price-monitoring, the #1 addon. Includes liquidity-provision and price-monitoring for a
 
 
 
